@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SHAURYASINGH01
+- 👀 I’m interested in Coding..
+- 🌱 I’m currently learning Java.
+- 💞️ I’m looking to collaborate on Github.
+- 📫 How to reach me Profile.
+- 😄 Pronouns: he/him..
+- ⚡ Fun fact: Nothing.
